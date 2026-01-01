@@ -1,2 +1,0 @@
-# DearDrandma
-Drandma's Dairy
